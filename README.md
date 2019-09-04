@@ -1,0 +1,2 @@
+Este es el primer paso que di en la programación web. Escribo esto para el Antonio del futuro, que espero que te esté yendo muy chingon, carnal. No es complicado, solo necesitas ponerte las pinches pilas, cabrón.
+Sale, nos vemos en un buen rato
